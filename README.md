@@ -1,3 +1,4 @@
+![qqs](https://github.com/user-attachments/assets/bfc743d7-1f2b-41b7-91fe-09d0f9fb96d1)
 ALYXXA nuker | Fast Nuker
 
 ❓ Have any questions or problems? Contact us to discord server or create an issue
